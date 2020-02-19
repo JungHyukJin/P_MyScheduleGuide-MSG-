@@ -1,4 +1,4 @@
-# My Schedule Guide (MSG)
+# My Schedule Guide (MSG) - 1st Project
 
 #### 2019.11.15 ~ 2019.11.18
 
